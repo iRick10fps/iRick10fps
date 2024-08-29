@@ -2,7 +2,7 @@
 **sou aluno do** **_Evandro_** 💙
 E os _**GURI**_
 
-Vai💚 _**PALMEIRAS**_💚
+Vai💚  _**PALMEIRAS**_ 💚
 <!--
 **iRick10fps/iRick10fps** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
